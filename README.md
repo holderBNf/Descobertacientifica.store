@@ -1,1 +1,0 @@
-# Descobertacientifica.store
